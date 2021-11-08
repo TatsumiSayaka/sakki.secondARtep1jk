@@ -1,1 +1,0 @@
-# sakki.secondARtep1jk
